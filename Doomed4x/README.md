@@ -1,5 +1,4 @@
-# 𝔻𝕠𝕠𝕞𝕖𝕕𝔽𝕠𝕦𝕣𝕩
-![image alt](tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280.png)
+![image alt]()
 𝓐𝓵𝓵 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮𓂃۶ৎ
 
 ![image alt](tumblr_34db0efa70d074be8ebb509f5df396a4_fa50c81d_1280.gif)
@@ -56,4 +55,4 @@
 𝘚𝘦𝘦 𝘠𝘰𝘶 𝘖𝘯 𝘛𝘩𝘦 𝘖𝘵𝘩𝘦𝘳 𝘚𝘪𝘥𝘦゛ ⸝⸝.ᐟ⋆
 
 ![image alt](tumblr_b3eb641147e30294c228f26d175cd3c2_f977a153_400.gif)
-![image alt](tumblr_ba8e24dfefa6bd46cc9476fd3598619e_131535b3_1280.png)
+![image alt]()
